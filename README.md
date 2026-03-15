@@ -1,1 +1,0 @@
-# LREG-NYC
